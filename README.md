@@ -1,1 +1,2 @@
 Edgar Palaquibay
+palaquie@oregonstate.edu
